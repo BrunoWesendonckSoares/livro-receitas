@@ -6,7 +6,7 @@
     
 </h2>
 
-<h3>  - Strogonoffe de frango
+<h3>  - Strogonoff de frango
 
 
     </h>
