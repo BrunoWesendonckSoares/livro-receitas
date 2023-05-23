@@ -1,4 +1,4 @@
-<h1>Livro de receitas :0
+<h1>Livro de receitas 🧑‍🍳
 
 </h1>
 
