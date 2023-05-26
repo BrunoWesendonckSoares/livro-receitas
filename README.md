@@ -11,6 +11,8 @@ Ingredientes:
     1 xícara de legumes variados (cenoura, ervilha, pimentão, brócolis)
     Sal e pimenta a gosto
     Óleo de cozinha
+    
+    
     Modo de preparo:
 Em uma panela, aqueça o óleo e refogue a cebola e o alho até dourar. Adicione o frango e o curry em pó, temperando com sal e pimenta. Cozinhe até o frango ficar dourado por fora. Acrescente os legumes e o leite de coco, deixando cozinhar por mais alguns minutos até ficarem macios. Sirva quente com arroz branco.
 
